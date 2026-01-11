@@ -1,0 +1,1 @@
+# wyklad5-6_przyk
